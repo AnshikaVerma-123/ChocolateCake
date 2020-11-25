@@ -1,4 +1,4 @@
-# How to make lava cake? 
+# How to make chocolate cake? 
 
 1. Grease and line three 8-inch (20 cm) cake tins with parchment paper.
 2. In a large bowl, sift together the flour, cocoa powder, salt, baking soda, and baking powder. Set aside.
