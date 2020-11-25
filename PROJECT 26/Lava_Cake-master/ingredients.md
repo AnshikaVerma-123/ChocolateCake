@@ -1,4 +1,4 @@
-# Ingredients for Lava Cake
+# Ingredients for Chocolate Cake
 1. 1 ½ cups flour (185 g)
 2. 1 cup dutch processed cocoa powder (120 g)
 3. 1 teaspoon salt
