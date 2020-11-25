@@ -4,7 +4,7 @@ Today, we are going to prepare delicious chocolate cakes.
 A perfect indulgence for every occasion yet very easy for every day dessert! Classic chocolate  cake made with some simple ingredients. So decadent, you just can't say no!
 
 ### Healthy Fact 
-Chocolate Cakes normally consists of 1270 calories with nearly 72% carbohydrates, 42 % fat and 3% protein. Due to the high calorie present in the cake, Chocolate Cake is not a suggested dessert for diet watchers.
+A small 130g Cadbury's chocolate egg contains about 537 calories. The NHS recommends a daily calorie intake limit of 2000 calories for a woman, and 2,500 for a man, so one egg is a fairly high proportion of that. The advice is therefore to eat a bit at a time! Milk chocolate eggs are often 50-60% sugar.
 
 
 **Recipe Servings: 2**
